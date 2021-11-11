@@ -1,1 +1,1 @@
-SUBSCRIBE VINZBOT JANGAN PAKE DOANG
+SUBSCRIBE anjir jangan lihat doang
